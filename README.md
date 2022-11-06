@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Aryanox
-- 👀 I’m interested in ...hacking
+- 👀 I’m interested in ...Hacking
 - 🌱 I’m currently learning ...Html
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...@aryanshakya_
